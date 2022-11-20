@@ -1,3 +1,4 @@
 # AuE8240-Automotive-Driving-Technologies
 
-![image](https://user-images.githubusercontent.com/93834678/202919920-17fbcf3a-fef7-4a81-807b-8f4c9c639d13.png)
+![71ij2y](https://user-images.githubusercontent.com/93834678/202919950-74f17d2a-5e58-4c4f-a09f-0157e1bca26c.gif)
+
